@@ -4,4 +4,4 @@
 
 
 
-Integrantes: Maximiliano Reis Nogueira e Gustavo Robert Moura da Conceição.
+Integrantes: Maximiliano Nogueira dos Reis  e Gustavo Robert Moura da Conceição.
